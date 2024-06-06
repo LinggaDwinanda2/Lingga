@@ -1,0 +1,2 @@
+# Lingga
+Claim to airdrop
